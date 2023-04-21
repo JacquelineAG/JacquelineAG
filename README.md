@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working as an Analyst in a company dedicated to health service.<br>🌱 I am interested in generating experience in the IT sector, creating, designing and redesigning digital products that generate relevant and meaningful experiences for users.<br>💬 Ask me about Stephen King books, I read them all (love them!)<br>⚡ Fun fact: Yes, I'm main Lulu in League of Legends and Morgana in Wild Rift.
+🔭 I’m currently working as an Analyst in a company dedicated to health service.<br>🌱 I am interested in generating experience in the IT sector, creating, designing and redesigning digital products that generate relevant and meaningful experiences for users.<br>💬 Ask me about Stephen King books, I read them all (love them!)<br>⚡ Fun fact: Yes, I'm main Morgana in League of Legends and I still play Starcraft <3
 
 
 ## 🌐 Socials:
